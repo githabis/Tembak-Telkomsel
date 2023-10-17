@@ -1,0 +1,1 @@
+my.telkomsel.com
