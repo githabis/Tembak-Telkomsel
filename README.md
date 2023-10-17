@@ -1,0 +1,2 @@
+# Tembak-Telkomsel
+dor Telkomsel
